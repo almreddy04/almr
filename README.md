@@ -1,1 +1,1 @@
-# almreddy04.github.io/website/
+# almreddy04.github.io/portfolio/
